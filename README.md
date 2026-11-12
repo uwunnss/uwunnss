@@ -5,7 +5,7 @@
 <br/>
 
 
-<img alt="Без названия8_20261112220442" src="https://github.com/user-attachments/assets/809c49f3-9652-4793-a417-7734635ff682" />
+<img alt="Без названия8_20261112220934" src="https://github.com/user-attachments/assets/7c43ffb2-f2ab-4bc6-b932-13c31888cf39" />
 
 ㅤ<div align="center"> ㅤㅤㅤ˖ㅤ────୨ৎ────ㅤㅤㅤ˖ㅤㅤㅤㅤ
 <br/>
