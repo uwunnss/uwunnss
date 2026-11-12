@@ -5,7 +5,8 @@
 <br/>
 
 
-## обновляется.
+<img alt="Без названия8_20261112220442" src="https://github.com/user-attachments/assets/809c49f3-9652-4793-a417-7734635ff682" />
+
 ㅤ<div align="center"> ㅤㅤㅤ˖ㅤ────୨ৎ────ㅤㅤㅤ˖ㅤㅤㅤㅤ
 <br/>
 <br/>
